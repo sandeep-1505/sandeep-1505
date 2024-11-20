@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data structres.
 - 💞️ I’m looking to collaborate on amazon.
 - 📫 you can reach me through my instagram (sandeep_59436).
-- 😄 Pronouns: want to be cool.
+- 😄 Pronouns: He/Him.
 - ⚡ Fun fact: like to play mobile games.
 
 <!---
